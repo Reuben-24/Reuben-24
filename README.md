@@ -1,4 +1,2 @@
-# Reuben Faltiska
-
-- [reubenfaltiska.com](https://reubenfaltiska.com)
-- [LinkedIn](https://linkedin.com/in/reubenfaltiska)
+# [reubenfaltiska.com](https://reubenfaltiska.com/)
+- [LinkedIn](https://www.linkedin.com/in/reuben-faltiska/)
